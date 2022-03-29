@@ -1,2 +1,2 @@
 # iyi oyunlar
- İYİ OYUNLAR
+burada oynadığım iyi oyunları yazacağım
